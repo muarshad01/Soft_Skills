@@ -1,4 +1,4 @@
-## Research -> Presentation->Talk
+## Research; Presentation; Talk
 
 ***
 
