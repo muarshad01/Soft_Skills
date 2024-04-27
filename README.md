@@ -7,3 +7,9 @@
 ## Non-technical Courses
 
 ***
+
+* Marketing
+* Supply Chain
+* Organizational Behavior
+* Strategic Management
+* Financial Management
